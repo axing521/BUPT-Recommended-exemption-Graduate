@@ -106,3 +106,8 @@ W老师很快回复了我的邮件，说，“现在还没有开始保研工作�
 
 
 写下此贴的目的在于记录自己坎坷的保研历程，也希望看到此贴的学弟学妹能以史鉴今，少走一些弯路。
+
+
+> 这次把以前的东西搬到github上来，主要是想引流，自从毕设开展之后近一年再没写东西，感觉不太行，想逼着自己写写东西了。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/rxKvItX9KKwmOhyNAq9sbf7RZedWqQtK2SvcB3D4IGHTPUIqF98XRYWgXyPWl6NWzftV03FE1EZCEiayuKpc02Q/0?wx_fmt=png)
